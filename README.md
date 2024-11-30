@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ToprakBZK
+- 👀 I’m interested in gaming and coding
+- 🌱 I’m currently learning java and c++
