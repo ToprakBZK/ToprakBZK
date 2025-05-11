@@ -1,5 +1,7 @@
 - Hi, I’m @ToprakBZK 
 - I’m interested in gaming, coding, moding and testing
 - I’m currently learning java and c++
-- YT: Atom BAMya
-  
+- YT: https://www.youtube.com/@atombamya
+- Reddit: https://www.reddit.com/user/Distinct-View-509/
+- I REALLYYYY LOVEEEEEEE WINDOWS 8.x
+- Modifing Browsers For Legacy Systems
